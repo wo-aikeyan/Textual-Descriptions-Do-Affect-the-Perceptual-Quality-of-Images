@@ -1,0 +1,1 @@
+# Textual-Descriptions-Do-Affect-the-Perceptual-Quality-of-Images
